@@ -1,7 +1,7 @@
 - 🐇 Haii ! I’m @Everzkaa :3
-- 🍷 I’m interested in ... making discord bots!
+- 🍷 I’m interested in ... MINECRAFTTTT!
 - 💕 I’m currently learning ... how to code :P
-- 🌸 How to reach me ... Contant me on discord :D
+- 🌸 How to reach me ... Contact me on discord and my gmail : wemmbunizer@gmail.com :D
 - 🎉 Pronouns: ... Anything you use for yourself guh
 - 🎀 Fun fact: ... I LIKE LIFESTEALLLLL!
 
